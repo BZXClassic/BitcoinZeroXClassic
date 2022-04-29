@@ -1,2 +1,4 @@
 # TAKEOVER!
-# BitcoinZeroXClassic [BZXC] 2022
+# permission for takeover granted by SPC team
+# BitcoinZeroXClassic [BZXC] 2022'
+# 
